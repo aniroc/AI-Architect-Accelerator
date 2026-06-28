@@ -1,1 +1,1 @@
-# AI-Architect-Journey-2026
+# AI-Architect-Accelerator
